@@ -1,1 +1,1 @@
-# GAMMA-Weapon-Improvement-Project
+# G.A.M.M.A. Weapon Improvement Project
